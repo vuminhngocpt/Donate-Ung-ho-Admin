@@ -3,9 +3,8 @@
 
 
 #### 💥 Chuyển Khoản Qua Ngân Hàng
-         9704229228460601￼
-             Mbbank
-           Vu Minh Ngoc
+              9704229228460601￼ 
+- MBBank - ViettelPay - Vũ Minh Ngọc
 [![7-D259558-FDC3-4816-A10-D-7624924-DD4-FE.jpg](https://i.postimg.cc/8zvtkbnP/7-D259558-FDC3-4816-A10-D-7624924-DD4-FE.jpg)](https://postimg.cc/Yvp1bQHJ)
 
 ####💡 Qua Ngân Hàng [![7-AB1-D21-B-B889-4-C59-96-E9-949003-FD55-A5.jpg](https://i.postimg.cc/w3Kfjdwj/7-AB1-D21-B-B889-4-C59-96-E9-949003-FD55-A5.jpg)](https://postimg.cc/tn5tB80K) 
