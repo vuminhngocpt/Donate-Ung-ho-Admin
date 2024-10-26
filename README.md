@@ -4,8 +4,7 @@
 
 #### 💥 Chuyển Khoản Qua Ngân Hàng
               9704229228460601￼ 
-- MBBank - ViettelPay - Vũ Minh Ngọc
-[![7-D259558-FDC3-4816-A10-D-7624924-DD4-FE.jpg](https://i.postimg.cc/8zvtkbnP/7-D259558-FDC3-4816-A10-D-7624924-DD4-FE.jpg)](https://postimg.cc/Yvp1bQHJ)
+[![D75-AA7-F4-3-ACD-4-AC5-B40-F-F0-AF942-B5-D8-D.jpg](https://i.postimg.cc/s2PHrLnF/D75-AA7-F4-3-ACD-4-AC5-B40-F-F0-AF942-B5-D8-D.jpg)](https://postimg.cc/nszGK3bT)
 
 #### 💥 Qua Tài Khoản Paypal 
 [![5-D20-F74-D-147-B-4754-A40-B-9751-B47-E49-E4.jpg](https://i.postimg.cc/66G0fctV/5-D20-F74-D-147-B-4754-A40-B-9751-B47-E49-E4.jpg)](https://postimg.cc/rzMx8Sdz) 
