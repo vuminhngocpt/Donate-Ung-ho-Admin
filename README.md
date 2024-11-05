@@ -11,6 +11,9 @@
 
 💥  [Hỗ Trợ Qua Paypal Tại Đây](https://paypal.me/ngocxyz?country.x=VN&locale.x=vi_VN)
 
+#### 💥 Qua Tài Khoản Bitcon
+
+[Địa Chỉ Bitcon Của Tôi](test)
 
 
 
