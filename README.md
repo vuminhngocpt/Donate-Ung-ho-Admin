@@ -1,7 +1,6 @@
 #### Các Bạn Có Lòng Tốt Hãy Hỗ Trợ Tôi , Tôi Xin Chân Thành Cảm Ơn Mọi Người Đã Quan Tâm Tới Tôi 🥰
 
-[Về Trang Chủ Xtgem ](http://vmnit.mobie.in/) 🚥 [Về Trang Trủ Github](tesst)
-
+#### Xin Hãy Hỗ Trợ Tôi Nếu Bạn Có Điều Kiện Nhé 
 
 #### 💥 Chuyển Khoản Qua Ngân Hàng
               9704229228460601￼ 
