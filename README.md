@@ -21,4 +21,4 @@
 
 
 
-      ©️ by Vu Minh Ngoc
+      ©️ Vũ Minh Ngọc . 2025
