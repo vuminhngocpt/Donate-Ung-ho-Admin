@@ -2,7 +2,7 @@
 
 #### Xin Hãy Hỗ Trợ Tôi Nếu Bạn Có Điều Kiện Nhé 
 
- - Tài Khoản Như Trên Nhé Tôi Làm Về Mạng Nên Tài Khoản Gì Tôi Cũng Biết Nhưng Nhận Duy Nhất 1 Tài Khoản ViettelPay của MBbank Trên Ạ 
+ - Tài Khoản Như Trên Nhé Tôi Làm Về Mạng Nên Tài Khoản Gì Tôi Cũng Biết Nhưng Nhận Duy Nhất 1 Tài Khoản ViettelPay của MBbank Trên Ạ . nếu không được thì quét mã QR 
 
 #### 💥 Chuyển Khoản Qua Ngân Hàng MBBank 
               9704229228460601￼ 
