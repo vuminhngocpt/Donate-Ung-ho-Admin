@@ -16,4 +16,4 @@ QR
 
 
 
-      ©️2026 VU MINH NGOC
+        ©️2026 Vu Minh Ngoc
